@@ -1,0 +1,1 @@
+Sedang belajar git ditemani dengan secangkir kopi hangat dan sebungkus rokok surya di sore hari yang indah ini
